@@ -1,6 +1,6 @@
 # List to buy Android application
 ## Privacy Policy (EN)
-Publication date: September 11, 2024
+Publication date: January 30, 2025
 ### General Provisions
 Policy - current Privacy Policy
 
